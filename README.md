@@ -1,0 +1,1 @@
+# SecqurAIse-Task-Internship
